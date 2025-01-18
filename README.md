@@ -1,6 +1,6 @@
 Hi, I’m @Uni-Weirdo - a bookworm, breathes music! CARAT 💎
 I love data analysis! Also F1!!
-Learning - BCA, ALso huge interest in collaborating on based on my interests
+Learning - BCA, Also huge interest in collaborating on based on my interests
 So, kindly reach me on princess.uni.1008@gmail.com
 BYEEEE
 
